@@ -11,8 +11,6 @@ https://fair.org/home/john-mccain-human-rights-ukrainian-nazi-photo-washington-p
 
 https://www.youtube.com/watch?v=YR5TZnFZ4tg
 
-Nationalist camp in Ukraine trains kids to kill
-
 https://www.amnesty.org/en/latest/news/2014/12/eastern-ukraine-humanitarian-disaster-looms-food-aid-blocked/
 
 https://m.thebl.news/world-news/europe/un-mission-ukraine-actions-after-odessa-fire-inadequate.html
