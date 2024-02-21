@@ -1,4 +1,7 @@
 Ukraine Nazi Examples
+
+https://x.com/gritty20202/status/1760126634558976484?s=46
+
 https://m.youtube.com/watch?v=jiBXmbkwiSw&list=PLkGLR6ZLo2i7EBEd0U9yo7R7j5tPohaxG&index=2&t=503s
 
 https://www.bellingcat.com/news/uk-and-europe/2019/08/09/yes-its-still-ok-to-call-ukraines-c14-neo-nazi/
