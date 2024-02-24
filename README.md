@@ -69,6 +69,13 @@ https://www.haaretz.com/israel-news/2018-07-09/ty-article/rights-groups-demand-i
 
 https://www.tellerreport.com/news/2021-07-07-%22towards-neo-nazism%22--why-in-ukraine-they-offered-to-return-the-titles-of-heroes-to-bandera-and-shukhevych.ryxx1ZS7TO.html?fbclid=IwAR0ucxQTwL9rTpf2JIPWz_rzeUWP_65nsTBDKycVWJLcIFanWnSJbewB4yw_aem_AT5OTEdqcTRR8NW4YL4avTCcRhWfpZFvlQEU7exeVGur1MjhtajWIU5dd5Vct4xHYIM#google_vignette
 
+Seven Decades of Nazi Collaboration: America’s Dirty Little Ukraine Secret
+
+Seven Decades of Nazi Collaboration: America’s Dirty Little Ukraine Secret
+
+https://www.thenation.com/article/archive/seven-decades-nazi-collaboration-americas-dirty-little-ukraine-secret/tnamp/
+
+https://www.thenation.com/article/archive/seven-decades-nazi-collaboration-americas-dirty-little-ukraine-secret/tnamp/
 Ukrainians and their language. The Act on the State Language of Ukraine
 
 https://www.osw.waw.pl/en/publikacje/osw-commentary/2019-06-11/ukrainians-and-their-language-act-state-language-ukraine
