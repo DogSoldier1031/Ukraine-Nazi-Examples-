@@ -94,8 +94,19 @@ Far-right Extremism as a Threat to Ukrainian Democracy
 
 https://freedomhouse.org/report/analytical-brief/2018/far-right-extremism-threat-ukrainian-democracy
 
-
-
 Collage of Ukrainian Nazi imagery
 
 https://x.com/gritty20202/status/1760126634558976484?s=46
+
+Canada Nazi row puts spotlight on Ukraine's WWII past
+
+https://www.bbc.com/news/world-us-canada-66914756.amp
+
+Stepan Bandera
+
+https://en.m.wikipedia.org/wiki/Stepan_Bandera?fbclid=IwAR0mIJcxYFh8avfnlgysyKizOnFZYxEUOFnzyNIUbP1jYujeosE-L8wpmHE_aem_AT60o9w4hCNcoydlWrix_jDWOFzggkHBRhSS8wvEDLWNdhB9MOQhtX9hzdatusAOflo
+
+Massacres of Poles in Volhynia and Eastern Galicia
+
+https://en.m.wikipedia.org/wiki/Massacres_of_Poles_in_Volhynia_and_Eastern_Galicia?fbclid=IwAR0OqPdENJrMDUIbKvZPMKru0VY_Vn8YhqJpPGYQquPJWgI4RIdVz3POY-s_aem_AT7dTAefsncNgSXu054Fke7Rg3KK8IVDQFzH6RUFqsEiYGAeepfYgatb8zA3VhS7KuY
+
