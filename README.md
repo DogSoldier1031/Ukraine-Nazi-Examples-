@@ -75,7 +75,6 @@ Seven Decades of Nazi Collaboration: America’s Dirty Little Ukraine Secret
 
 https://www.thenation.com/article/archive/seven-decades-nazi-collaboration-americas-dirty-little-ukraine-secret/tnamp/
 
-https://www.thenation.com/article/archive/seven-decades-nazi-collaboration-americas-dirty-little-ukraine-secret/tnamp/
 Ukrainians and their language. The Act on the State Language of Ukraine
 
 https://www.osw.waw.pl/en/publikacje/osw-commentary/2019-06-11/ukrainians-and-their-language-act-state-language-ukraine
