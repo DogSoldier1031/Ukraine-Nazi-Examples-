@@ -1,5 +1,9 @@
 Ukraine Nazi Examples
 
+Neo-Nazi threat in new Ukraine: NEWSNIGHT (on BBC)
+
+https://m.youtube.com/watch?v=5SBo0akeDMY
+
 Kyiv to name street for Ukrainian Nazi collaborator after public vote
 
 https://m.jpost.com/diaspora/antisemitism/article-738940#google_vignette
